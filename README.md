@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JayTeeMacquarie
+- 👀 I’m interested in Tech!
+- 🌱 I’m currently learning a Bachelor of Information Technology, Double Major in Software Technology and Game Design and Development!
+- 💞️ I’m looking to collaborate on anything I can!
+- 📫 How to reach me Here!
